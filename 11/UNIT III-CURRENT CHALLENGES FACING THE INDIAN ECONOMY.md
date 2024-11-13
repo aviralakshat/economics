@@ -37,4 +37,13 @@ Both forms of capital formation arre outcomes of conscious investment decisions.
 this behaviour is godd but not tolerable
 
 
+### Urgency in the document creation
+
+1. There is a part in which it can obtain a precise value of the magical notion
+	- This is ceratainly good
+	- Apart not
+2. and maybe
+3. 
+
+
 
