@@ -30,7 +30,11 @@ Human capital refers to **the stock of skill, ability, expertise, education, an
 4. People incurring cost of migration, which will be compensated by higher earning than their native place.
 5. People **spend to acquire information relating to the labour market and other markets like education and health.** This information is necessary to make decisions regarding investments in human capital as well as for efficient utilisation of the acquired human capital stock. **Expenditure incurred** for acquiring information relating to the labour market and other markets is **also a source of human capital formation**
 
+### Physical and Human Capital
 
+Both forms of capital formation arre outcomes of conscious investment decisions.
+
+this behaviour is godd but not tolerable
 
 
 
