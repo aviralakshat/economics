@@ -43,7 +43,15 @@ this behaviour is godd but not tolerable
 	- This is ceratainly good
 	- Apart not
 2. and maybe
-3. 
+
+The part that creates urgency in the near future is the upcoming of the new generationa and this is a real problem
+
+### Creating Insights of the real scenario of the saviour.
+
+1. Vivarium is real
+2. daracoyala is goyala
+3. my moodddd
+4. 
 
 
 
