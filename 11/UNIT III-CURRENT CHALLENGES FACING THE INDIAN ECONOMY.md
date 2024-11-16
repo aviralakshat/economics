@@ -26,6 +26,7 @@ Human capital refers to **the stock of skill, ability, expertise, education, an
 3. Company spending on training of their new employees in, insisting that workers should work for a specific period of time.
 	1. Under a supervision of senior official
 	2. sending them for off-campus training.
+ 3. The diversific nature of society
 
 4. People incurring cost of migration, which will be compensated by higher earning than their native place.
 5. People **spend to acquire information relating to the labour market and other markets like education and health.** This information is necessary to make decisions regarding investments in human capital as well as for efficient utilisation of the acquired human capital stock. **Expenditure incurred** for acquiring information relating to the labour market and other markets is **also a source of human capital formation**
@@ -50,7 +51,7 @@ The part that creates urgency in the near future is the upcoming of the new gene
 
 1. Vivarium is real
 2. daracoyala is goyala
-3. my moodddd
+3. my moodddd		
 4. 
 
 
