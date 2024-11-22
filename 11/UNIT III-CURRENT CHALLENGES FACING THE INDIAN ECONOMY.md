@@ -52,7 +52,9 @@ The part that creates urgency in the near future is the upcoming of the new gene
 - ja ja re apne mandariya
 
 - this is something we can do that has not happened in a bery near future but we can assure you that there is a certain reterosdpective demand that creates a certain in a place in the fields of the very near future that can certainly make the whole world look like it has never happened in the near future but you know, it is what it is.
--  
+-  INsights on latest news that bahrain had certainly did was there is an absolute stand that bahrain present **this can dig depper with the demarcated demand that the company presents to itself**
+-  _There you can lead a very simple life._
+  > this is a good deed that has respectred by once in all that can provide a stringent but subtantious demand right that there is a new savouty and cconcoctiously way ahead to the new soitery iun the most solidita=ort htat has a retort connect in the most absurd way possible and can help in the near future in the upscaling and **the demand have risen and can grant the demand and that has certan about that that this thesis will not ned in the near future and can presently say that there is a conscious that this demadn that this is in its most certan way that there is this new demand that can still the declassyfying th dtaa and cna present**
 
 
 
