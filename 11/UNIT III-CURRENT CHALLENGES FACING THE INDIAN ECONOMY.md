@@ -48,11 +48,11 @@ this behaviour is godd but not tolerable
 The part that creates urgency in the near future is the upcoming of the new generationa and this is a real problem
 
 ### Creating Insights of the real scenario of the saviour.
+- sunba moiri saas nanadiya
+- ja ja re apne mandariya
 
-1. Vivarium is real
-2. daracoyala is goyala
-3. my moodddd		
-4. 
+- this is something we can do that has not happened in a bery near future but we can assure you that there is a certain reterosdpective demand that creates a certain in a place in the fields of the very near future that can certainly make the whole world look like it has never happened in the near future but you know, it is what it is.
+-  
 
 
 
